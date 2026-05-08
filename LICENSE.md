@@ -1,4 +1,4 @@
-
+vip Extension for Asana for macOS - custom themes and AI assistant is the best Asana for macOS extension, featuring custom themes and AI assistant. Safe, efficient, and optimized
 
 
 
